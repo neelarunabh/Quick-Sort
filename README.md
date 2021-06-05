@@ -1,7 +1,8 @@
 https://www.youtube.com/watch?v=Azd67zZuCww
+
 https://www.youtube.com/watch?v=gUpFR3hkKDM 
 
-olinegdb.com/ryRlgsGgD 
+https://olinegdb.com/ryRlgsGgD 
 
 https://www.cs.usfca.edu/~galles/visualization/ComparisonSort.html
 
