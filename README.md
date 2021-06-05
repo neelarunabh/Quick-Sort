@@ -2,7 +2,7 @@ https://www.youtube.com/watch?v=Azd67zZuCww
 
 https://www.youtube.com/watch?v=gUpFR3hkKDM 
 
-https://olinegdb.com/ryRlgsGgD 
+https://onlinegdb.com/ryRlgsGgD 
 
 https://www.cs.usfca.edu/~galles/visualization/ComparisonSort.html
 
